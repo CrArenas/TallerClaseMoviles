@@ -1,2 +1,2 @@
-Cristian Arenas - 1002637023
-Jairo Castaño - 1192812640
+Cristian Andrés Arenas Vargas - 1002637023 //
+Jairo Steven Castaño Lavado - 1192812640
